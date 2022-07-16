@@ -14,7 +14,7 @@
 
 - 2 colheres de sopa de ketchup
 
-- 2 clores de sopa de mostarda
+- 2 colheres de sopa de mostarda
 
 - 150 gramas de champignon
 
@@ -29,5 +29,3 @@
 3. Abaixe o fogo e coloque o cfeme de leite e mexa até se tornar um creme homogênio.
 
 4. Está pronto para servir.
-
-
